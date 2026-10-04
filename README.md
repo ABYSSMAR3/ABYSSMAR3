@@ -1,4 +1,5 @@
-<img width="642" height="242" alt="IMG_0511" src="https://github.com/user-attachments/assets/6743d1a6-92b4-4155-bf55-663648ff4d30" />
+
+<img width="1280" height="452" alt="Untitled24_20261004141623" src="https://github.com/user-attachments/assets/0ca25679-a1c8-429a-9993-56dd62fa8733" />
 
 
 
@@ -9,23 +10,19 @@
 
 
 
-<p align="center">
-  <img width="1024" height="1024" alt="IMG_0510" src="https://github.com/user-attachments/assets/b5d76fe6-367f-4ae1-b7fc-c03d3b0faa77" />
+<img width="850" height="642" alt="Untitled23_20261004141245" src="https://github.com/user-attachments/assets/23f1bf8f-7051-4028-9485-87dfd8eebda9" />
 
 
 
 
 
 
+<img width="575" height="73" alt="IMG_0536" src="https://github.com/user-attachments/assets/fbc0d61d-3a70-494f-b1eb-b9540d56e94f" />
 
 
+I’m putting my links here soon holdup 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3146wn7sqxgjltfrqbsegkzyucfy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
-  </a>
-</p>
-
-
-
-𝘐'𝘔 𝘚𝘛𝘐𝘓𝘓 𝘞𝘖𝘙𝘒𝘐𝘕𝘎 𝘖𝘕 𝘛𝘏𝘐𝘚 𝘞𝘈𝘐𝘛. 
+  </p>
