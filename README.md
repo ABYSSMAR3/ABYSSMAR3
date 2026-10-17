@@ -1,5 +1,19 @@
 
-<img width="1280" height="452" alt="Untitled24_20261004141623" src="https://github.com/user-attachments/assets/0ca25679-a1c8-429a-9993-56dd62fa8733" />
+<img width="1280" height="427" alt="Untitled35_20261017111245" src="https://github.com/user-attachments/assets/e792515f-452d-40ff-884e-137dfbde5d3e" />
+
+
+
+
+
+<img width="575" height="73" alt="IMG_0536" src="https://github.com/user-attachments/assets/637f96d6-341c-4043-8a5a-2dadc56de934" />
+
+
+
+
+
+
+
+<img width="1199" height="797" alt="Untitled34_20261017110705" src="https://github.com/user-attachments/assets/b93b9dbd-05f2-4a51-99ef-0ae24054d1cd" />
 
 
 
@@ -9,16 +23,6 @@
 
 
 
-
-<img width="850" height="642" alt="Untitled23_20261004142951" src="https://github.com/user-attachments/assets/5a0d4817-1624-49b4-8f88-17580520a8dc" />
-
-
-
-
-
-
-
-<img width="575" height="73" alt="IMG_0536" src="https://github.com/user-attachments/assets/fbc0d61d-3a70-494f-b1eb-b9540d56e94f" />
 
 
 I’m putting my links here soon holdup 
