@@ -25,7 +25,7 @@
 
 
 
-I’m putting my links here soon holdup 
+[𝘈𝘛𝘈](https://beautifulpettylies.atabook.org) . 🥀 (my en page will take awhile) 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
