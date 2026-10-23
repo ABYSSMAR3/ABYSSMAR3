@@ -25,7 +25,7 @@
 
 
 
-[𝘈𝘛𝘈](https://beautifulpettylies.atabook.org) . 🥀 (my en page will take awhile) 
+[𝘈𝘛𝘈](https://beautifulpettylies.atabook.org) . 🥀 [EN PRNS](https://en.pronouns.page/@ALTER-EGO)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
