@@ -15,7 +15,11 @@
 
 <img width="1199" height="797" alt="Untitled34_20261017110705" src="https://github.com/user-attachments/assets/b93b9dbd-05f2-4a51-99ef-0ae24054d1cd" />
 
-
+゛
+Who     am     I,     oh,     who   am     I,        alienation
+  Emptiness     from     despair     to     where
+    Happiness,     loneliness     beyond
+   Beyond    ⸝⸝.ᐟ⋆
 
 
 
